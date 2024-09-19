@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OiliMaria
-- 👀 I’m interested in ... animals, making jewelrys
+- 👀 I’m interested in ... animals, making jewelrys, playing video games
 - 🌱 I’m currently learning ... about git and github
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... oilimaria_ at instagram
